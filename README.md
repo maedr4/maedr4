@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Daniel, or maedra, or montaigne, or Danny, or whatever the fuck u want irdc.
+- 📖 Software student at ESPOCH so please 🐻 with me if my code is kinda shitty.
+- 👀 Total sucker for GNU/Linux, Backend Development and Cybersecurity.
+- 🌱 Currently Learning C++ and Python.
+- 💞️ Son Cubano, Bossa Nova, Jazz and Salsa are probably the best genres ever created, and Hunter S. Thompson is my spiritual guide.
+- 📫 DM me if you want to dox me or have an esoteric chat, i'm open to anything :3
